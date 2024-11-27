@@ -2,7 +2,7 @@
 
 - 📚 Equipe inteiramente feita por talentos da Universidade Santa Cecília.
 
-- 💖 Membros: Guilherme Rocha, Lucar Miranda, Lucar Rodrigues, Felipe Fonseca e Beatriz Santinir.
+- 💖 Membros: Guilherme Rocha, Lucas Miranda, Lucas Rodrigues, Felipe Fonseca e Beatriz Santinir.
 
 <br/><br/>
 
